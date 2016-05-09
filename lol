@@ -1,1 +1,0 @@
-#lol ce tare
